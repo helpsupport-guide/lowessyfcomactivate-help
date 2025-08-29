@@ -1,1 +1,1 @@
-# lowessyfcomactivate-help
+# lowes.syf.com/activate
